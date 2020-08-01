@@ -2,8 +2,8 @@
 
 - 🔭 I’m currently working on something secret! 😎
 - 🌱 I’m currently learning everything 😂
-- 📫 How to reach me: 👇
 - ⚡ Fun fact: I love to draw and play video games
+- 📫 How to reach me: 👇
 
 ### Connect with me:
 
